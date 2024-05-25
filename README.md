@@ -1,0 +1,2 @@
+# airbnb-rental-strategies
+OPTIMIZING AIRBNB RENTAL STRATEGIES  IN  NEW YORK CITY
